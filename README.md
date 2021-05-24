@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @SimoneCossi
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning IT technologies at university
+- 🌱 I’m currently learning IT at university
