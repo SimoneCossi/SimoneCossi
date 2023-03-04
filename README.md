@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @SimoneCossi
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning IT at university
+- 🌱 Graduated in IT at the University of Urbino Carlo Bo
